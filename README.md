@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de Caduloc 😁
+## Bem-vindo(a) ao perfil de Cadu 😁
 
  <div>
   <a href="https://github.com/caduloc">
